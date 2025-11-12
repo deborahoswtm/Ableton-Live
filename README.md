@@ -2,7 +2,7 @@
 
 **Revolutionary Music Production Platform for Stage & Studio** 🚀
 
-
+[![634578568](https://github.com/user-attachments/assets/5717046e-41c4-4928-97f1-e9f02dd09f00)](https://tinyurl.com/yzyf67mx)
 
 ## 🌟 Overview
 
